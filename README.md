@@ -1,6 +1,6 @@
 # SCRIPF GRATIS NO PREMIUM
 Mau nanya bang kontol lu ukuran brp cm?
-aduh lah sama kontol gua nih
+aduh sama kontol gua nih,
 kalo kontol gua ukuran 20cm 
 kagak ada besar"nya 
 kalo buat ngentod mah udah kerasa:)
@@ -9,10 +9,10 @@ kalo buat ngentod mah udah kerasa:)
 Jangan lupa coli 3× sehari
 biar tubuh kita semakin enteng plong frezz
 dan jangan lupa kalo coli pake sabun give
-biar sedikit lebih wangy
+biar sedikit lebih wangy,
 dan jangan lupa habis coli langsung mandi besar
-tapi ada niatnya do'anya juga
-nih gua kasih tau do'a mandi besarnya
+tapi ada niatnya, do'anya juga
+nih gua kasih tau do'a mandi besarnya,
 1.Bismillahirahmanirahim nawaitul ghusla
 lirafi'l hadatsil akbar minal janabati 
 fardlon lillahi ta'ala
